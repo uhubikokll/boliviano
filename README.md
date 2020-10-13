@@ -1,0 +1,2 @@
+# boliviano
+Lnlnlni vghk v
